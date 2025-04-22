@@ -1,1 +1,12 @@
+![1000140394](https://github.com/user-attachments/assets/41f9e423-4973-4a52-bbc0-5025ce070a10)
+![1000140392](https://github.com/user-attachments/assets/bb6c3d7e-0488-4fa4-b53a-277cdb20b526)
+![1000140390](https://github.com/user-attachments/assets/bebe5a92-27cb-4ea9-8570-60f547e4873c)
+![1000140386](https://github.com/user-attachments/assets/374fbd0e-4a10-4046-9dff-a8682621c4f4)
+![1000140388](https://github.com/user-attachments/assets/289fbb27-eb0a-4183-ae16-0e7517005a26)
+![1000140384](https://github.com/user-attachments/assets/480cbdd3-a3eb-4586-8bc6-c7ecdcb0ecf3)
+![1000140382](https://github.com/user-attachments/assets/0c68c830-1acf-4177-9b7c-1ef8222e18a8)
+![1000140380](https://github.com/user-attachments/assets/0b93c1b2-23df-434f-9f9e-2dacac3494dc)
+![1000140378](https://github.com/user-attachments/assets/8fdbb420-8a47-4b3f-b130-31c6b14aa192)
+![1000140376](https://github.com/user-attachments/assets/4e118596-815e-482c-a96c-ea202a431f8f)
+![1000140407](https://github.com/user-attachments/assets/28e095c4-2ba2-49a3-a0d3-3dc7e707fc8e)
 This is assignment 1
